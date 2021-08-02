@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @xshen1234
+- 👀 I’m interested in anime, coding, drawing, reading, writing, and others.
+- 🌱 I’m currently learning how to code, how to communicate with others, and how to draw.
+- 💞️ I’m looking to collaborate on a coding project, so I can try to make my owm little game!
+- 📫 How to reach me: contact me at sshen744@gmail.com if you have any questions or you want to join my team!
